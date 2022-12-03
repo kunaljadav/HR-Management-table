@@ -1,0 +1,1 @@
+# HR-Management-table![screencapture-file-C-Users-HP-Desktop-table-for-HR-table-for-HR-html-2022-12-03-02_04_18](https://user-images.githubusercontent.com/119563307/205435464-dddbda67-36c5-4c50-ae26-003a56232aae.png)
